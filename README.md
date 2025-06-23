@@ -10,3 +10,5 @@
 👉 [Перейти на официальный сайт казино Вавада](https://partredivada.com/?promo=1e8d4c1d-28c6-485d-a245-57dce602889b&target=register)
 
 --- 
+
+![Vavada Casino](https://github.com/user-attachments/assets/3d456ee5-0dd7-4118-8493-7fbcd922425e)
